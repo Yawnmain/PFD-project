@@ -16,6 +16,10 @@ https://github.com/Yawnmain/PFD-project/assets/51706588/a0dead04-7ebb-4f72-ba85-
 
 
 
+### Демонстрация poster_3
 
+
+
+https://github.com/Yawnmain/PFD-project/assets/51706588/f944766e-c662-4bca-b896-87e2592a0f54
 
 
